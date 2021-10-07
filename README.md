@@ -1,1 +1,1 @@
-this is a misstake
+this is a mistake
